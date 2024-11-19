@@ -1,4 +1,4 @@
-## Hi 👋, I'm Lutri Veflina :)
+## Hi 👋, I'm Lutri Veflina
 
 I am Web Developer. Find out more about me & feel free to connect with me here:
 
